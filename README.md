@@ -1,3 +1,1 @@
-# Splash-of-Thoughts
-
-# Shower kids, kids shower 
+# Splash-of-Brainrot
